@@ -2,7 +2,6 @@
 - 👀 I’m interested in learning about technology specifically about the development of games
 - 🌱 I’m currently learning java and html
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me @kwhites302 on instagram
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am currently obsessed with overcooked
 
